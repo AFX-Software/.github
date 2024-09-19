@@ -3,6 +3,7 @@
 
 Quer me contatar? envie um [email](mailto:afonso33barbosa@gmail.com) :)
 
-![wallpaper 1](https://github.com/user-attachments/assets/0d28d93f-dd31-4e04-9f2a-2f3b91ba89de)
+![wallpaper](https://github.com/user-attachments/assets/47450d05-f85f-465f-bbf1-c0c91dcba8da)
+
 
 
